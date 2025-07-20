@@ -6,8 +6,7 @@
 
 
 
-
-![Uploading sung-jinwoo-monarca-das-sombras.gif…]()
+https://media1.tenor.com/m/8-S-r_BKN7cAAAAd/sung-jinwoo-monarca-das-sombras.gif
 
 
 
