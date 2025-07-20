@@ -5,8 +5,8 @@
 
 
 
+![sung-jinwoo-monarca-das-sombras](https://github.com/user-attachments/assets/ead8d79a-a3e3-43b7-bf04-35ea9b04ec20)
 
-![sung-jin-woo](https://github.com/user-attachments/assets/937edaff-86a2-4e5b-9e99-6e12b9456ea1)
 
 
 
