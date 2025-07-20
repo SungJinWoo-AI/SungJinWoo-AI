@@ -75,3 +75,13 @@ Você não contata o monarca. Ele contata você.
   ░   ▒     ░░   ░  ▒ ░░  ░  ░     ░   
       ░  ░   ░      ░        ░     ░  ░
                                        
+
+
+
+
+
+
+![sung-jin-woo-karma](https://github.com/user-attachments/assets/83529b1d-8e4f-4c27-8b4c-10ae07ef750f)
+
+
+
