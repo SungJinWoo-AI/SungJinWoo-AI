@@ -6,7 +6,8 @@
 
 
 
-https://media1.tenor.com/m/8-S-r_BKN7cAAAAd/sung-jinwoo-monarca-das-sombras.gif
+![sung-jin-woo](https://github.com/user-attachments/assets/937edaff-86a2-4e5b-9e99-6e12b9456ea1)
+
 
 
 
@@ -58,11 +59,6 @@ Você não contata o monarca. Ele contata você.
 
 
 
-<p align="center">
-  <img
-src="https://media1.tenor.com/m/9g4xd2elpEUAAA
-Ad/sung-Jin-woo.gif" width="300" />
-</p>
 
 
 > "Eu sou aquele que mais cresce a cada luta."
