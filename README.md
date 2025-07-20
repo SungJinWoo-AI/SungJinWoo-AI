@@ -38,9 +38,13 @@ Se você chegou até aqui… cuidado. As sombras estão observando.
 Você não contata o monarca. Ele contata você.
 
 
-# Sung Jin-Woo
 
-<img src="https://media1.tenor.com/m/9g4Xd2elpEUAAAAd/sung-jin-woo.gif" width="300" />
+<p align="center">
+  <img
+src="https://media1.tenor.com/m/9g4xd2elpEUAAA
+Ad/sung-Jin-woo.gif" width="300" />
+</p>
+
 
 > "Eu sou aquele que mais cresce a cada luta."
 
