@@ -1,5 +1,15 @@
 # Shadow Domain
 
+
+
+
+
+![sung-jin-woo](https://github.com/user-attachments/assets/3169130d-6f4d-49dc-9d62-b11c349880e6)
+
+
+
+
+
 > “Arise.” – Sung Jin-Woo 🖤
 
 Este repositório é um fragmento da escuridão que habita entre dimensões. Aqui, apenas os dignos têm permissão de leitura.
