@@ -57,12 +57,7 @@ Se você chegou até aqui… cuidado. As sombras estão observando.
 
 Você não contata o monarca. Ele contata você.
 
-
-
-
-
 > "Eu sou aquele que mais cresce a cada luta."
-
 
 
  ▄▄▄       ██▀███   ██▓  ██████ ▓█████ 
@@ -75,12 +70,3 @@ Você não contata o monarca. Ele contata você.
   ░   ▒     ░░   ░  ▒ ░░  ░  ░     ░   
       ░  ░   ░      ░        ░     ░  ░
                                        
-
-
-
-
-
-
-
-
-
